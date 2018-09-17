@@ -1,5 +1,5 @@
 Fairytales from Childhood's Favorites and Fairy Stories
-at Project Gutenberg https://www.gutenberg.org/files/19993/19993-h/19993-h.htm
+at Project Gutenberg https://www.gutenberg.org/ebooks/19993
 
 excerpts from the collection of fairy tales are the following documents:
 
